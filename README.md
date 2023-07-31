@@ -8,4 +8,4 @@ Meu nome é Leticia Maria Ferreira De Lima Lenartovicz
 
 ### Não sei muito bem o que to fazendo 
 
-![](https://media.tenor.com/BWk4_NBCmtgAAAAC/one-piece.gif)
+![](https://media.tenor.com/re-mTjTLwIoAAAAd/zoro.gif)
